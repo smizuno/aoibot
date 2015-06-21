@@ -1,1 +1,3 @@
-# aoibot
+# Miyamori Aoi
+
+Bansaku tsuki ta...

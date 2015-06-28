@@ -1,3 +1,3 @@
 # Miyamori Aoi
 
-Bansaku tsuki ta...
+Bansaku tsuki ta...?
